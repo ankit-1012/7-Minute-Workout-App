@@ -1,0 +1,7 @@
+![Screenshot (223)](https://github.com/ankit-1012/7-Minute-Workout-app/assets/88272796/bfc39a31-0c67-49ac-8c8f-c5daa19bd620)
+![Screenshot (224)](https://github.com/ankit-1012/7-Minute-Workout-app/assets/88272796/d889c949-a7a5-4541-9e63-75b206cb9979)
+![Screenshot (225)](https://github.com/ankit-1012/7-Minute-Workout-app/assets/88272796/6b90d7fb-d342-47c8-bf96-4088f63178c3)
+![Screenshot (226)](https://github.com/ankit-1012/7-Minute-Workout-app/assets/88272796/f30bc8a5-d08a-4b04-a5f6-cda76848db2b)
+![Screenshot (227)](https://github.com/ankit-1012/7-Minute-Workout-app/assets/88272796/3fd0ed34-73a4-4fd4-82de-7817661cd142)
+![Screenshot (228)](https://github.com/ankit-1012/7-Minute-Workout-app/assets/88272796/3f0d0ffd-fabd-4243-b053-8363ed291828)
+![Screenshot (229)](https://github.com/ankit-1012/7-Minute-Workout-app/assets/88272796/d8ee1a8c-c1b2-4430-a999-ae641165379a)
